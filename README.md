@@ -5,10 +5,15 @@ Here at Rajundeswara, we strive to make the classics of English known throughout
 <br>
 <br>
 The people striving to make Rajundeswara the best, are:
+<br>
 <b>Antonio- Headmaster</b>
+<br>
 <b>Bassanio- Gardener</b>
+<br>
 <b>Shylock- Accountant</b>
+<br>
 <b>Myself, Chaitanya S- Founder</b>
+<br>
 <b>Will Shakespeare- Inspiration</b>
 <br>
 <br>
