@@ -6,15 +6,15 @@ Here at Rajundeswara, we strive to make the classics of English known throughout
 <br>
 The people striving to make Rajundeswara the best, are:
 <br>
-<b>Antonio- Headmaster</b>
+<b>Antonio</b>- Headmaster
 <br>
-<b>Bassanio- Gardener</b>
+<b>Bassanio</b>- Gardener
 <br>
-<b>Shylock- Accountant</b>
+<b>Shylock</b>- Accountant
 <br>
-<b>Myself, Chaitanya S- Founder</b>
+<b>Myself, Chaitanya S</b>- Founder
 <br>
-<b>Will Shakespeare- Inspiration</b>
+<b>Will Shakespeare</b>- Inspiration
 <br>
 <br>
 <br>
