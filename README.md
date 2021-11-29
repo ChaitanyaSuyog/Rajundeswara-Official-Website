@@ -19,3 +19,6 @@ The people striving to make Rajundeswara the best, are:
 <br>
 <br>
 This college does <b>not</b> exist, it was just a joke made by me with my friends when we were doing our English homework :P
+<br>
+<br>
+Update November 1st 2021- Project has ceased temporarily. Selling shares at school, physically.
